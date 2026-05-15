@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with smart dex sniper bot Strategy | price-impact-analysis + multi-chain-support, the #1 dex sniper bot. Includes price-impact-analysis and
 
 
 
